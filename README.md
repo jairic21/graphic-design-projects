@@ -1,1 +1,1 @@
-# graphic-design-projects
+# Graphic Design Projects
